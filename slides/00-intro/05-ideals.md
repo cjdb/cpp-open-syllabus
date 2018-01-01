@@ -1,0 +1,3 @@
+## Ideals for programmers
+
+### 
